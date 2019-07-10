@@ -1,0 +1,2 @@
+Maybe anotehr thing in Whisky: Those who keep to their moral codes vs those who don't vs those who just don't have them, who have "operating procedures" instead. Of course those with good ethical codes, might see their codes as advanced versions of operatiional procdures (which basically they are). Then there are the self-rightousous moralistic ones, who basically don't have real morals, they're just the empty rigthous, the useless who badger with morality, and they slip and fail their own codes all of the damn time!
+
